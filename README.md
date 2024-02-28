@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HypnoticCube, also known as Jazz.
-- 👀 I’m interested in various things, like Genshin Impact, Honkai: Star Rail, Transformers, etc.
+- 👀 I’m interested in various things, like Genshin Impact, Honkai: Star Rail, Transformers, Pony Town, etc.
 - 🌱 I’m currently learning Norwegian!
 - 📫 You can reach me by Discord: hypnoticcube
 - 😄 Pronouns: Any/All
