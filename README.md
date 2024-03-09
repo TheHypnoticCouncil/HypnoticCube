@@ -4,7 +4,7 @@
 - 📫 You can reach me by Discord: hypnoticcube
 - 😄 Pronouns: Any/All
 - ⚡ Little disclaimer: I'm a slow responder, and I swear I don't mean to ignore you.
-- ❗ IMPORTANT!! I am a Dissociative Identity Disorder System, called The Cxunc!l (Council) System
+- ❗ IMPORTANT!! I am a Dissociative Identity Disorder System, called The Cxunc1l (Council) System
 
 <!---
 HypnoticCube/HypnoticCube is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
