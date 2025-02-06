@@ -1,6 +1,6 @@
-- Hi, We're @HypnoticCube, collectively known as Cube.
-- We're interested in various things like Genshin Impact, Honkai: Star Rail, Tears of Themis, Pony Town, etc.
-- We're currently learning Norwegian!
+- Hi, We're @HypnoticCube, collectively known as Hypnotic.
+- We're interested in various things like Genshin Impact, Honkai: Star Rail, Honkai: Impact 3rd, Tears of Themis, Pony Town, etc.
+- We're currently (trying) learning Norwegian!
 - You can reach us by Discord: hypnoticcube
 - Collective Pronouns: They/It/Xe
 - Little disclaimer: We're a slow responder, and we swear we don't mean to ignore you.
