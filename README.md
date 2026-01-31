@@ -3,6 +3,6 @@
 - You can reach us by Discord: hypnoticcube
 - Collective Pronouns: They/It/Xe
 - Little disclaimer: We're a slow responder, and we swear we don't mean to ignore you. 
-- IMPORTANT!! We are a Dissociative Identity Disorder System, called The Hypnotic Council. Doubles are 100% welcome! 
+- IMPORTANT!! We are a Dissociative Identity Disorder System, called The Hypnotic Council. ( We don't believe in doubles, every alter is their own person, source attached or not <3 ) 
 - We barely check GitHub (so so sorry, but we do from time to time!)
 - Feel free to send a friend request on Discord if you have any questions or want to be friends with us!
